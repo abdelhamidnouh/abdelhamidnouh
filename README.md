@@ -1,5 +1,5 @@
 ### Hi there 👋
-## السلام عليكم ,Ciao, Hello , Hola , 你好 , Hej
+## Ciao, Hello , Hola , 你好 , Hej
 
 
 
